@@ -1,0 +1,3 @@
+- @Balrong1
+- Ubuntu Touch enthusiast,
+- Running on Oneplus One and Oneplus 5T
